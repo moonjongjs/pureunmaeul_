@@ -12,11 +12,8 @@
 
 ![image](https://github.com/user-attachments/assets/c06e5d4b-340b-404e-a8de-6c00dfe26ad2)
 
-![image](ihttps://github.com/user-attachments/assets/mage.png)
+![image](https://github.com/user-attachments/assets/a83dbb5d-1a64-4250-8bc0-aea49d0ef604)
 
-![image](https://github.com/user-attachments/assets/image-1.png)
-
-![image](https://github.com/user-attachments/assets/image-2.png)
 
 </center>
 
